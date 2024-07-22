@@ -2,3 +2,4 @@
 - [https://www.youtube.com/channel/UChmdM8T4pAu5v-znQApKA0g](https://www.youtube.com/channel/UChmdM8T4pAu5v-znQApKA0g)
 - [https://x.com/MarinaLavrovic](https://x.com/MarinaLavrovic)
 - [https://medium.com/@MarinaLavrovic](https://medium.com/@MarinaLavrovic)
+- [https://www.quora.com/Marina-Lavrovic](https://www.quora.com/Marina-Lavrovic)
